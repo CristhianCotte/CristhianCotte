@@ -11,7 +11,7 @@
 
 
 
-### Glad to see you here!  
+### Desarrollador Web Full-Stack
 Estudiante de Ingeniería en Sistemas con más de 3 años de experiencia en el área del desarrollo web y marketing digital.  
   
 
