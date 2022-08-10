@@ -12,7 +12,7 @@
 
 
 ### Desarrollador Web Full-Stack
-Estudiante de Ingeniería en Sistemas con más de 3 años de experiencia en el área del desarrollo web y marketing digital.  
+Estudiante de Ingeniería en Sistemas con más de 3 años de experiencia en el área del desarrollo web y marketing digital, con gran capacidad de resolver prograblemas, orientado a la acción y aprendizaje rápido. 
   
 
 <br/>  
